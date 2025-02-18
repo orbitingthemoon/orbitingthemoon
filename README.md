@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Sophia @orbitingthemoon
-- 👀 I’m interested in product design and UI/UX design
-- 🌱 I’m currently learning UI Design using Figma, Material Design System 3
+- 👀 I’m interested in product design, UI/UX design, games, web 3 designs
+- 🌱 I’m currently learning Illustrations and Wb 3 Game designs
 - 💞️ I’m looking to collaborate on Design projects
 - 📫 How to reach me sophiatemiloluwa@gmail.com
-- 😄 Pronouns:she/her
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm always fascinated by the phases of the moon during the lunar cycle and I enjoy reading science fiction and fantasy novels and watching animations and anime in my spare time 
 
 <!---
